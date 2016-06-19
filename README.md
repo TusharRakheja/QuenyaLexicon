@@ -11,7 +11,7 @@ If I know the breakdown of the word, I've posted that too.
  * __ata__ - _again_
  * __atta__ - _two_
  * __caima__ - _bed_
- * __caita__ - _lies_s
+ * __caita__ - _lies_
  * __cal-__ - (_v_.) _to_ _shine_ 
  * __caluva__ - _shall_ _shine_
  * __colla__ - _cloak_
